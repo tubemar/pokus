@@ -1,2 +1,0 @@
-# pokus
-asdfbn adfg erg
